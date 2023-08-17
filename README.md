@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... petuhi i pacany
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...ytjf
-- 📫 How to reach me ...3j 353xfgjxae rff
+- 📫 How to reach me ...3j 353xfgjxae rffsdfh
 
 <!---3 56j
 ivan-kovalenko21/ivan-kovalenko21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

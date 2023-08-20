@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ivan-kovalenko21
 - 👀 I’m interested in ... petuhi i pacany
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...ytjf
+- 💞️ I’m looking to collaborate on ...ytjf uwu
 - 📫 How to reach me ...3j 353xfgjxae rffsdfh yerteyrt
 
 <!---3 56j

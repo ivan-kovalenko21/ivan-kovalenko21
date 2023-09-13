@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ivan-kovalenko21
 - 👀 I’m interested in ... petuhi i pacany
-- 🌱 I’m currently learning ... hfghfg xhgftr5h erhwehre
+- 🌱 I’m currently learning ... hfghfg xhgftr5h erhwehre 235235 23
 - 💞️ I’m looking to collaborate on ...ytjf uwurtehhtrk jkg trg
 - 📫 How to reach me ...3j 353xfgjxae rffsdfh yerteyrte rty 5ywrt h 6456tryrttr eu jtrjs54j  tyrirtyity 56u56eu6e5
 hrtfwefwet wer
